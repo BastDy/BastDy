@@ -2,7 +2,7 @@
 
 Independent RevOps consultant in Toronto. Fractional RevOps, CRM audits and CRM automation for B2B SaaS, established SMBs and larger sales teams, remotely across Canada and the US, in English or French.
 
-[Book a 15-minute call](https://calendar.app.google/n5UqcsiMRdB4RHt9A) · [LinkedIn](https://www.linkedin.com/in/bastiendubray/) · [Email](mailto:bastien.dubray@gmail.com) · [X](https://x.com/DubrayBastien)
+[Website](https://bastdy.github.io) · [Book a 15-minute call](https://calendar.app.google/n5UqcsiMRdB4RHt9A) · [LinkedIn](https://www.linkedin.com/in/bastiendubray/) · [Email](mailto:bastien.dubray@gmail.com) · [X](https://x.com/DubrayBastien)
 
 ---
 
