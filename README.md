@@ -1,4 +1,4 @@
-### Hi, I'm Bastien. I fix the CRM your sales team stopped trusting.
+### Hi, I'm Bastien.
 
 Independent RevOps consultant in Toronto. Fractional RevOps, CRM audits and CRM automation for B2B SaaS, established SMBs and larger sales teams, remotely across Canada and the US, in English or French.
 
